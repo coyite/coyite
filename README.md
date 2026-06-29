@@ -48,6 +48,7 @@
 <p><em>General:</em></p>
 <p>⋆ Ecology & Conservation Biology</p>
 <p>⋆ Reptiles (especially snakes), Amphibians (all of them), Horses, and Cats</p>
+<p>⋆ Outer Space</p>
 <p>⋆ Hiking </p>
 <p>⋆ Writing </p>
 <p>⋆ Drawing </p>
