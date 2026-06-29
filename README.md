@@ -1,4 +1,4 @@
-<center><b>James/Newt || 23 || Any Pronouns</b></center></center>
+<center><b>James/Newt || 23 || Any Pronouns</b></center>
 <br>
  </br>
 <br>
@@ -6,8 +6,8 @@
 Hello! Please interact, I'm really shy and have a hard time approaching new people but I'd love to make some friends.
 <br>
 </br>
-byi:
-- I have ADHD, Social Anxiety, OCD, and DPDR -- please be patient if I'm socially awkward!
+BYI:
+<p>- I have ADHD, Social Anxiety, OCD, and DPDR -- please be patient if I'm socially awkward!</p>
 <br>
 </br>
 
