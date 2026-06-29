@@ -1,4 +1,4 @@
-<b>James // 23 // any pronouns</b>
+<b>James // 23 // any pronouns<b>
 <br>
 </br>
 Hello! Please interact, I'm really shy and have a hard time approaching new people but I'd love to make some friends.
@@ -9,18 +9,18 @@ byi:
 <br>
 </br>
 
-<br>Video Games:</br>
+<b><br>Video Games:</br><b>
 <br>✱ Outer Wilds!!!</br>
 <br>✱ Red Dead Redemption 2!!</br>
 <br>✱ Minecraft</br>
 <br>✱ Stardew Valley</br>
 <br>✱ Star Stable Online</br>
 
-<br>Media:</br>
+<b><br>Media:</br><b>
 <br>✱ Spider-Man</br>
 <br>✱ Iron Man</br>
 
-<br>Books:</br>
+<b><br>Books:</br><b>
 <br>✱ Blood Over Bright Haven</br>
 <br>✱ Hail Mary</br>
 <br>✱ The Will of the Many</br>
