@@ -1,29 +1,29 @@
-<center><b>James/Newt || 23 || Any Pronouns</b></center>
- </br>
-<br>
- </br>
-Hello! Please interact, I'm really shy and have a hard time approaching new people but I'd love to make some friends.
-<br>
-</br>
-BYI:
-<p>- I have ADHD, Social Anxiety, OCD, and DPDR -- please be patient if I'm socially awkward!</p>
-<br>
-</br>
-
-
-<br>Video Games:</br>
-<p>✱ Outer Wilds!!!</p>
-<p>✱ Red Dead Redemption 2!!</p>
-<p>✱ Minecraft</p>
-<p>✱ Stardew Valley</p>
-<p>✱ Star Stable Online</p>
-
-<br>Media:</br>
-<p>✱ Spider-Man</p>
-<p>✱ Iron Man</p>
-
-<br>Books:</br>
-<p>✱ Blood Over Bright Haven</p>
-<p>✱ Hail Mary</p>
-<p>✱ The Will of the Many</p>
-<p>✱ Percy Jackson</p>
+<p><b>Twenty-Three // Any Pronouns</b></p>
+<p>&nbsp;</p>
+<table>
+<tbody>
+<tr>
+<td>
+<p><b>Video Games:</b></p>
+<p><span style="font-weight: 400;">✱ Outer Wilds!!!</span></p>
+<p><span style="font-weight: 400;">✱ Red Dead Redemption 2!!</span></p>
+<p><span style="font-weight: 400;">✱ Minecraft</span></p>
+<p><span style="font-weight: 400;">✱ Stardew Valley</span></p>
+<p><span style="font-weight: 400;">✱ Star Stable Online</span></p>
+</td>
+<td>
+<p><b>Books:</b></p>
+<p><span style="font-weight: 400;">✱ Blood Over Bright Haven</span></p>
+<p><span style="font-weight: 400;">✱ Hail Mary</span></p>
+<p><span style="font-weight: 400;">✱ The Will of the Many</span></p>
+<p><span style="font-weight: 400;">✱ Percy Jackson</span></p>
+</td>
+<td>
+<p><b>Media:</b></p>
+<p><span style="font-weight: 400;">✱ Spider-Man</span></p>
+<p><span style="font-weight: 400;">✱ Iron Man</span></p>
+</td>
+</tr>
+</tbody>
+</table>
+<p>&nbsp;</p>
