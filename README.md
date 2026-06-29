@@ -10,7 +10,7 @@
 <br>
 </br>
 
-<p><strong>// INTERESTS //</strong></p>
+<p><strong>✦ INTERESTS ✦</strong></p>
 <p><em>Video Games:</em></p>
 <p>⋆ Outer Wilds!!!</p>
 <p>⋆ Red Dead Redemption 2!!</p>
