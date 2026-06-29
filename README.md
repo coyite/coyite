@@ -37,6 +37,7 @@
 <p>⋆ Spider-Man</p>
 <p>⋆ Iron Man</p>
 <p>⋆ Wolverine</p>
+<p>⋆ Deadpool</p>
 <p>⋆ Mob Pyscho 100</p>
 <p>⋆ Gravity Falls</p>
 
