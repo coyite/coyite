@@ -1,4 +1,4 @@
-James // 23 // any prns
+James // 23 // any pronouns
 
 Hello! Please interact, I'm really shy and have a hard time approaching new people but I'd love to make some friends.
 
