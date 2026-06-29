@@ -4,3 +4,29 @@ Hello! Please interact, I'm really shy and have a hard time approaching new peop
 
 byi:
 - I have ADHD, Social Anxiety, OCD, and DPDR -- please be patient if I'm socially awkward!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
