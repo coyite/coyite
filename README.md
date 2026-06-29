@@ -1,4 +1,4 @@
-<center><b>James/Newt || 23 || Any Pronouns</b></center>
+<center><b>James/Newt || 23 || Any Pronouns</b></center> style="font-size:20px;"
 <br>
  </br>
 <br>
