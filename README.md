@@ -11,23 +11,23 @@ byi:
 <br>
 </br>
 
-<table style="width: 86%; height: 100px; margin: auto;">
-	<colgroup>
-		<col style="width: 33.3333%;">
-			<col style="width: 33.3333%;">
-				<col style="width: 33.3333%;">
-	</colgroup>
-	<tbody>
-		<tr>
-			<td style="vertical-align: top;">
 
-				
-</table>
+<br>Video Games:</br>
+<p>✱ Outer Wilds!!!</p>
+<p>✱ Red Dead Redemption 2!!</p>
+<p>✱ Minecraft</p>
+<p>✱ Stardew Valley</p>
+<p>✱ Star Stable Online</p>
 
-<p style="text-align:center;">
-	<br>
-</p>
+<br>Media:</br>
+<p>✱ Spider-Man</p>
+<p>✱ Iron Man</p>
 
+<br>Books:</br>
+<p>✱ Blood Over Bright Haven</p>
+<p>✱ Hail Mary</p>
+<p>✱ The Will of the Many</p>
+<p>✱ Percy Jackson</p>
 
 <br>
 </br>
