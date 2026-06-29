@@ -6,7 +6,8 @@
 
 <p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make friends who are around my age! ♡</p>
 
-\
+<br>
+</br>
 
 <p><strong>𖦹&nbsp; INTERESTS &nbsp;𖦹</strong></p>
 <p><em>Video Games:</em></p>
@@ -19,7 +20,8 @@
 <p>⋆ Star Stable Online<br></p>
 <p>⋆ ClanGen<br></p>
 
-\
+<br>
+</br>
 
 <p><em>Books:</em></p>
 <p>⋆ Blood Over Bright Haven</p>
