@@ -1,6 +1,8 @@
 <b>James/Newt || 23 || Any Pronouns</b>
 <br>
-</br>
+ </br>
+<br>
+ </br>
 Hello! Please interact, I'm really shy and have a hard time approaching new people but I'd love to make some friends.
 <br>
 </br>
