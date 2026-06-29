@@ -9,22 +9,22 @@ byi:
 <br>
 </br>
 
-Video Games:
-✱ Outer Wilds!!!
-✱ Red Dead Redemption 2!!
-✱ Minecraft
-✱ Stardew Valley
-✱ Star Stable Online
+<br>Video Games:</br>
+<br>✱ Outer Wilds!!!</br>
+<br>✱ Red Dead Redemption 2!!</br>
+<br>✱ Minecraft</br>
+<br>✱ Stardew Valley</br>
+<br>✱ Star Stable Online</br>
 
-Media:
-✱ Spider-Man
-✱ Iron Man
+<br>Media:</br>
+<br>✱ Spider-Man</br>
+<br>✱ Iron Man</br>
 
-Books:
-✱ Blood Over Bright Haven
-✱ Hail Mary
-✱ The Will of the Many
-✱ Percy Jackson
+<br>Books:</br>
+<br>✱ Blood Over Bright Haven</br>
+<br>✱ Hail Mary</br>
+<br>✱ The Will of the Many</br>
+<br>✱ Percy Jackson</br>
 
 
 <br>
