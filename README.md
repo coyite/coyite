@@ -32,3 +32,14 @@
 <p><em>Media:</em></p>
 <p>⋆ Spider-Man</p>
 <p>⋆ Iron Man</p>
+
+<br>
+</br>
+
+<p><em>General:</em></p>
+<p>⋆ Ecology & Biology</p>
+<p>⋆ Reptiles (especially snakes), Amphibians (alla them), Horses, and Cats</p>
+<p>⋆ Hiking </p>
+<p>⋆ Writing </p>
+<p>⋆ Drawing </p>
+<p>⋆ Gen Fanfiction</p>
