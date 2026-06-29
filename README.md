@@ -1,4 +1,4 @@
-<img src="/uploads/blog/1782766062220-npng---Copy.png"><p style="text-align: center;"><strong>Twenty-Three // Any Pronouns</strong></p><p><br></p>
+<p style="text-align: center;"><strong>Twenty-Three // Any Pronouns</strong></p><p><br></p>
 <p>&nbsp;</p>
 <table>
 <tbody>
