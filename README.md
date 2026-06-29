@@ -29,6 +29,7 @@
 <p>⋆ Project Hail Mary</p>
 <p>⋆ The Will of the Many</p>
 <p>⋆ Percy Jackson</p>
+<p>⋆ Remarkably Bright Creatures</p>
 
 <br>
 </br>
