@@ -2,7 +2,7 @@
 	<img src="https://i.postimg.cc/bvNvMTmJ/npng-Copy.png" style="width: 1000px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 </p>
 
-<p> ## aka Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns</p>
+## aka Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns
 
 <p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make friends who are around my age! ♡</p>
 
