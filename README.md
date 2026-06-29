@@ -4,7 +4,7 @@
 
 <p style="text-align: center;"><strong>aka Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns</strong></p>
 
-<p>Please don't be scared to interact! I'm always open for a chat, would love to meet new people and make friends who are around my age! I try my best not to be socially incompetent but sometimes I fail sorry </p></3</p>
+<p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make friends who are around my age! ♡</p>
 <p>Currently focusing on ArtFight!</p>
 
 <br>
