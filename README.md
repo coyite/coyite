@@ -16,6 +16,7 @@
 <p>⋆ Minecraft</p>
 <p>⋆ Stardew Valley</p>
 <p>⋆ Star Stable Online<br></p>
+<p>⋆ ClanGen<br></p>
 
 <br>
 </br>
