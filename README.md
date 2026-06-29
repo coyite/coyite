@@ -1,4 +1,4 @@
-<p style="text-align: center;"><strong>Twenty-Three ⋆ Any Pronouns</strong></p><p>Please don't be scared to interact! I'm always open for a chat and would love to meet new people &lt;3</p><p></p><p></p>
+<p style="text-align: center;"><strong>Twenty-Three ★ Any Pronouns</strong></p><p>Please don't be scared to interact! I'm always open for a chat and would love to meet new people &lt;3</p><p></p><p></p>
 <br>
 </br>
 <p><strong>// INTERESTS //</strong></p><p><em>Video Games:</em></p><p>✱ Outer Wilds!!!</p><p>✱ Red Dead Redemption 2!!</p><p>✱ Minecraft</p><p>✱ Stardew Valley</p><p>✱ Star Stable Online<br></p>
