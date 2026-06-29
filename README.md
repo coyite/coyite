@@ -1,5 +1,5 @@
 <p style="text-align:center;">
-	<img src="https://i.postimg.cc/bvNvMTmJ/npng-Copy.png" style="width: 748px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
+	<img src="https://i.postimg.cc/bvNvMTmJ/npng-Copy.png" style="width: 1000px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 </p>
 
 <p style="text-align: center;"><strong>Twenty-Three  &nbsp;✦&nbsp;  Any Pronouns</strong></p>
