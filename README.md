@@ -36,6 +36,8 @@
 <p><em>Media:</em></p>
 <p>⋆ Spider-Man</p>
 <p>⋆ Iron Man</p>
+<p>⋆ Mob Pyscho 100</p>
+<p>⋆ Gravity Falls</p>
 
 <br>
 </br>
