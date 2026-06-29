@@ -14,8 +14,10 @@
 <p><em>Video Games:</em></p>
 <p>⋆ Outer Wilds!!!</p>
 <p>⋆ Red Dead Redemption 2!!</p>
-<p>⋆ Minecraft</p>
+<p>⋆ Baldur's Gate 3</p>
+<p>⋆ Hollow Knight</p>
 <p>⋆ Stardew Valley</p>
+<p>⋆ Minecraft</p>
 <p>⋆ Star Stable Online<br></p>
 <p>⋆ ClanGen<br></p>
 
