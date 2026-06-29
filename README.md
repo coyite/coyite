@@ -1,4 +1,4 @@
-<p style="text-align: center;"><strong>Twenty-Three 𖦹 Any Pronouns</strong></p>
+<p style="text-align: center;"><strong>Twenty-Three ✦ Any Pronouns</strong></p>
 
 <p>Please don't be scared to interact! I'm always open for a chat and would love to meet new people &lt;3</p><p></p><p></p>
 
