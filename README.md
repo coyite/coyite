@@ -15,11 +15,7 @@
 <p>I don't ship, but I don't mind ships or sitting with shippers! Just please be normal
 
 <p align="center">
-Visit [Markdown Lang][] to Learn Markdown Language.
-See markdown editor on [Markdown Editor][].
-
-[Markdown Lang]: https://www.markdownlang.com
-[Markdown Editor]: https://www.markdownlang.com/editor/
+<a href=”https://example.com”>Visit Example</a>
 </p>
 
 <br>
