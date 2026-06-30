@@ -8,7 +8,7 @@
 </p>
 
 <p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make friends who are around my age! ♡</p>
-<p>I don't ship, idm ships or shippers though, just please be normal</p>
+<p>I don't ship, but I don't mind ships or shippers! Just please be normal</p>
 
 <br>
 </br>
