@@ -15,8 +15,7 @@
 <p>I don't ship, but I don't mind ships or sitting with shippers! Just please be normal
 
 <p align="center">
-This is a link to [Markdown](https://www.markdownlang.com).
-Visit [nvm](https://www.nvmnode.com) to see open source projects.
+Visit my (https://www.markdownlang.com "Carrd").
 </p>
 
 <br>
