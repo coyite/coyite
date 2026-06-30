@@ -7,7 +7,7 @@
 	</p>  
 
 <p align="center">
-<strong>James / Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns</strong>
+<strong>James / Newt &nbsp;𖦹&nbsp; 23  &nbsp;𖦹&nbsp;  Any Pronouns</strong>
 </p>  
 
 
