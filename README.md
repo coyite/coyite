@@ -11,6 +11,8 @@
 
 ### James / Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns</strong>
 
+\n
+
 <p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
 <p>I don't ship, but I don't mind ships or sitting with shippers! Just please be normal
 	
