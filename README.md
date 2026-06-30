@@ -15,7 +15,7 @@
 <p>I don't ship, but I don't mind ships or sitting with shippers! Just please be normal
 
 <p align="center">
-<a href="https://coyite.carrd.co/">Visit Example</a>
+<a href="https://coyite.carrd.co/">Carrd</a>
 </p>
 
 <br>
