@@ -28,11 +28,3 @@
 <p align="center">
     <img src="https://64.media.tumblr.com/9fd941d6edd8ce5157aad945ef374c15/f2313893e8abbf1a-39/s2048x3072/b72fe3c2467fb7db6ffd784dfcbf6271c73660a2.pnj" style="width: 1500px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 </p>
-
-<br>
-</br>
-<br>
-</br>
-<br>
-</br>
-Profile readme is a wip
