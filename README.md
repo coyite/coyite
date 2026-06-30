@@ -18,6 +18,7 @@
 <p>⋆ Outer Wilds!!!</p>
 <p>⋆ Red Dead Redemption 2</p>
 <p>⋆ Baldur's Gate 3</p>
+<p>⋆ Subnautica</p>
 <p>⋆ Hollow Knight</p>
 <p>⋆ Stardew Valley</p>
 <p>⋆ Minecraft</p>
