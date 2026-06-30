@@ -6,11 +6,12 @@
     <img src="https://64.media.tumblr.com/2e3d84d840615593224337df6cf54166/f2313893e8abbf1a-ea/s2048x3072/ab2e002cbc2744bc1f269ce626e4ea8e541a69b2.pnj" style="width: 675px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 	</p>
 	
+<br></br>
+
 <p align="center">
 James / Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns</strong>
 </p>
 
-<br></br>
 
 <p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
 <p>I don't ship, but I don't mind ships or sitting with shippers! Just please be normal
