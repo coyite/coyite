@@ -15,7 +15,7 @@
 <p>I don't ship, but I don't mind ships or sitting with shippers! Just please be normal
 
 <p align="center">
-Visit my (https://www.markdownlang.com "Carrd").
+Visit my [Markdown Lang] (https://www.markdownlang.com "Carrd").
 </p>
 
 <br>
