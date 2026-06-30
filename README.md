@@ -11,7 +11,7 @@
 </p>  
 
 
-<p>Please don't be scared to interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
+<p>Please interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
 <p>I don't ship, but I don't mind ships (pretty neutral on the majority of them) and you're free to int as long as it's nothing bad</p>
 
 
