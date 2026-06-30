@@ -16,7 +16,7 @@
 
 
 <p align="center">
-<a href="https://coyite.carrd.co/">☆ Carrd ☆</a>
+<a href="https://coyite.carrd.co/">Carrd ☆</a>
 </p>
 
 
