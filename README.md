@@ -4,8 +4,11 @@
 
 <p align="center">
     <img src="https://64.media.tumblr.com/2e3d84d840615593224337df6cf54166/f2313893e8abbf1a-ea/s2048x3072/ab2e002cbc2744bc1f269ce626e4ea8e541a69b2.pnj" style="width: 675px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
-	<p>
-		
+	</p>
+	
+<br>
+<br>
+
 ### James / Newt &nbsp;𖦹&nbsp; Twenty-Three  &nbsp;𖦹&nbsp;  Any Pronouns</strong>
 
 <br>
