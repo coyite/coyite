@@ -1,5 +1,5 @@
 <p align="center">
-	<img src="https://i.postimg.cc/P58hPq0K/jpng.png" style="width: 600px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
+	<img src="https://i.postimg.cc/P58hPq0K/jpng.png" style="width: 675px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 </p>
 
 
