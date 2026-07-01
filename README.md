@@ -12,7 +12,7 @@
 
 
 <p>Please interact! I'm a bit shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
-<p>Sorry if I ever miss a message! It's totally unintentional and I'm not ignoring you! Sometimes I just don't notice the notification in time</p>
+<p>Sorry if I ever miss a message! It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time</p>
 <p>I don't ship, but I don't mind ships (pretty neutral on the majority of them) and you're free to int as long as it's nothing bad</p>
 
 
