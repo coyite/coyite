@@ -16,7 +16,7 @@
 <p>I don't ship, but I don't mind anything as long as it isn't bad / illegal</p>
 
 <p align="center">
-<a href="https://coyite.carrd.co/">Carrd ☆</a>
+<a href="https://coyite.carrd.co/">Carrd</a> ☆ <a href="https://newtsite.straw.page/">Strawpage</a>
 </p>
 
 
