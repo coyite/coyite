@@ -15,10 +15,9 @@
 <p>Sorry if I ever miss a message! I'm often off-tab drawing or doing other things. It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time</p>
 <br></br>
 
-<p align="center">
-<a href="https://coyite.carrd.co/">Carrd</a> ☆ <a href="https://newtsite.straw.page/">Strawpage</a>
+<p align="center"> ☆ 
+<a href="https://coyite.carrd.co/">Carrd</a> ☆
 </p>
-<p align="center">I like making websites</p>
 
 <p align="center">
 	<img src="https://64.media.tumblr.com/cbe41f6d507022f632bec871256b71e7/f2313893e8abbf1a-a8/s2048x3072/5c79830af109cb7e8976106a44e59ccdd460e690.pnj" style="width: 1500px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
