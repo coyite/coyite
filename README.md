@@ -7,7 +7,7 @@
 	</p>  
 
 <p align="center">
-<strong>James / Newt &nbsp;𖦹&nbsp; 23  &nbsp;𖦹&nbsp;  he/him</strong>
+<strong>James / Newt &nbsp;𖦹&nbsp; 23  &nbsp;𖦹&nbsp;  He/Him</strong>
 </p>  
 
 
