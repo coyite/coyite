@@ -15,8 +15,8 @@
 <p>Sorry if I ever miss a message! I'm often off-tab drawing or doing other things. It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time</p>
 <br></br>
 
-<p align="center"> ☆ 
-<a href="https://coyite.carrd.co/">Carrd</a> ☆
+<p align="center">  
+<a href="https://coyite.carrd.co/">Carrd</a>
 </p>
 
 <p align="center">
