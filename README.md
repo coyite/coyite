@@ -12,7 +12,7 @@
 
 
 <p>Please interact! I'm quite shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
-<p>Sorry if I ever miss a message! I'm often off-tab drawing or doing other things. It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time</p>
+<p>Sorry if I ever miss a message! I'm often off-tab drawing or doing other things. It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time, either than or I'm overthinking how I respond so I don't sound stupid</p>
 <br></br>
 
 <p align="center">  
