@@ -11,7 +11,7 @@
 </p>  
 
 
-<p>Please interact! I'm quite shy and can be awkward, but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
+<p>Please interact! I'm quite shy and socially awkward (sorry), but I'm always open for a chat. I would love to meet new people and make some friends! ♡</p>
 <p>Sorry if I ever miss a message! I'm often off-tab drawing or doing other things. It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time, either than or I'm overthinking about how to respond</p>
 <br></br>
 
