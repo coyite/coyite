@@ -2,9 +2,6 @@
 	<img src="https://i.postimg.cc/jd1wpLzp/jpng.png" style="width: 675px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 </p>
 
-<p align="center">
-    <img src="https://64.media.tumblr.com/2e3d84d840615593224337df6cf54166/f2313893e8abbf1a-ea/s2048x3072/ab2e002cbc2744bc1f269ce626e4ea8e541a69b2.pnj" style="width: 675px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
-	</p>  
 
 <p align="center">
 <strong>James / Newt &nbsp;𖦹&nbsp; 23  &nbsp;𖦹&nbsp;  He/Him</strong>
@@ -23,3 +20,7 @@
 <p align="center">
 	<img src="https://64.media.tumblr.com/cbe41f6d507022f632bec871256b71e7/f2313893e8abbf1a-a8/s2048x3072/5c79830af109cb7e8976106a44e59ccdd460e690.pnj" style="width: 1500px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
 </p>
+
+<p align="center">
+    <img src="https://64.media.tumblr.com/2e3d84d840615593224337df6cf54166/f2313893e8abbf1a-ea/s2048x3072/ab2e002cbc2744bc1f269ce626e4ea8e541a69b2.pnj" style="width: 675px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
+	</p>  
