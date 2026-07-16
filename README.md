@@ -14,7 +14,7 @@
 
 
 <p align="center">  
-<a href="https://coyite.carrd.co/">Carrd</a>
+<a href="https://coyite.carrd.co/">Carrd</a> ☆ <a href="https://coyite.carrd.co/">StrawPage</a> ☆ <a href="https://coyite.carrd.co/">Pronouns</a>
 </p>
 
 <p align="center">
