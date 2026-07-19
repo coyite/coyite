@@ -10,7 +10,7 @@
 
 <p>Please interact! I'm quite shy and socially awkward, but I'm always open for a chat. I would love to meet new people and make some friends! (Minors DNI)</p>
 <p>Sorry if I ever miss a message! I'm sometimes off-tab drawing or doing other things. It's totally unintentional and I'm not ignoring you! Sometimes I just don't see the notification in time (I'm unobservant)</p>
-<p>I don't ship, but I'm okay with shippers! Just please don't flirt with me or make NSFW jokes about me!!</p>
+<p>I don't ship, but I'm okay with shippers</p>
 
 
 <p align="center">  
