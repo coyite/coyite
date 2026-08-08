@@ -5,3 +5,5 @@
 ▸ Sorry in advance if I ever miss a message! I'm often off-tab drawing or doing other things. It's totally unintentional and I'm not purposely ignoring you
 
 ▸ I'm generally pretty chill! Just please don't make sexual/weird comments about me or involve me in drama/discourse
+
+▸ Check out my StrawPage!
