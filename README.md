@@ -6,6 +6,8 @@
 
 ▸ I'm generally pretty chill! Just please don't make sexual/weird comments about me or involve me in drama/discourse
 
+⛔ status means I'm afk and may not respond
+
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=coyite&label=★&style=plastic&color=gray)
