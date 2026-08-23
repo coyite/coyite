@@ -6,8 +6,6 @@
 
 ▸ I'm generally pretty chill! Just please don't make sexual/weird comments about me or involve me in drama/discourse
 
-▸ ⛔ afk, may not respond / 🌙 off-tab
-
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=coyite&label=★&style=plastic&color=gray)
