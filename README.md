@@ -6,7 +6,7 @@
 
 ▸ I'm generally pretty chill! Just please don't make sexual/weird comments about me or involve me in drama/discourse
 
-⛔ status means I'm afk and may not respond
+▸ ⛔ afk, may not respond / 🌙 off-tab
 
 <div align="center">
   
