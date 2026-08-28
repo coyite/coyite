@@ -1,4 +1,4 @@
-<p style="text-align: center;">### James / Newt &nbsp;||&nbsp; 18+  &nbsp;||&nbsp;  He/Him </p>
+<p style="text-align: center;"> ### James / Newt &nbsp;||&nbsp; 18+  &nbsp;||&nbsp;  He/Him </p>
 
 ▸ Feel free to int! I'm shy and I can sometimes be quiet and awkward, but I'm always open to meeting people :D
 
