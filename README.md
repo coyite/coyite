@@ -1,4 +1,4 @@
-<h3 align="center">James / Newt &nbsp;||&nbsp; 18+  &nbsp;||&nbsp;  He/Him</h3>
+<h2 align="center">James / Newt &nbsp;||&nbsp; 18+  &nbsp;||&nbsp;  He/Him</h2>
 
 <p align="center">
     <img src="https://64.media.tumblr.com/5f72de87f1ff2b47624e6b50d74117ae/579e5316ffbe1944-cf/s640x960/4692c95ea7eaa23ff0b97c7da03df500df055141.webp" style="width: 550px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
