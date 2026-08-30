@@ -4,7 +4,7 @@
     <img src="https://64.media.tumblr.com/83e13d189d896cfa579da09cb04d6f1a/f4e1d61ed636f200-19/s2048x3072/4f5b37be08827ea426d213530db16938f621c25c.pnj" style="width: 1500px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
     </p>  
     
-<divider></divider>
+---
 
 ▸ Feel free to int! I'm shy and I can sometimes be quiet and awkward, but I'm always open to meeting people :D
 
