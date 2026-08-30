@@ -1,7 +1,7 @@
 <h3 align="center">James / Newt &nbsp;||&nbsp; 18+  &nbsp;||&nbsp;  He/Him</h3>
 
 <p align="center">
-    <img src="https://64.media.tumblr.com/51f587699811ceec1ca3f632416883a5/24a1316a9dd0c2cc-28/s1280x1920/aee7a67e4f6893e5c33fc725915707a26af2b170.pnj" style="width: 550px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
+    <img src="https://64.media.tumblr.com/40f809eb03fd3b1734cc27d468512819/3d37e303c0e83acb-3a/s2048x3072/4efeabd108cbe90af145d743b37552620be56f9a.pnj" style="width: 550px; display: block; vertical-align: top; margin: 5px auto; text-align: center;">
     </p>  
 
 ▸ Feel free to int! I'm shy and I can sometimes be quiet and awkward, but I'm always open to meeting people :D
