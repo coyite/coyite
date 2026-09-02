@@ -10,7 +10,7 @@
 
 ▸ I'm generally pretty chill! Just please don't make sexual/weird comments about me or involve me in drama/discourse
 
-▸ I usually have friend requests off but if we've been talking and you want to be friends (on Pony Town) let me know :)
+▸ I usually have friend requests off (on Pony Town) but if we've been talking and you want to be friends let me know :)
 
 <div align="center">
   
